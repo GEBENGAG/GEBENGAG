@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GEBENGAG
+- 👋 Hi, I’m Eugene
 - just c# enginer
 - for business and partnership - yugensochi89@gmail.com
 
